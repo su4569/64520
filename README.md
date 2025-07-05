@@ -45,4 +45,4 @@
 “日本AV免费”虽是高热度搜索词，但我们更建议用户选择正规、安全、更新及时的平台来满足观影需求。在满足个人娱乐的同时，也要注意信息安全和内容合法性。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/su4569/64520 ）</span>
